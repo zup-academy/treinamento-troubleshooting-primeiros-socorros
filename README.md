@@ -71,7 +71,7 @@
 
 ## Quem está criando?
 
-Temos dois zuppers focados na criação deste treinamento. Rafael Ponte(príncipe do oceano) e Yuri Matheus(o nosso jovem que de tanta tranquilidade parece o mestre ancião). Sinta-se a vontade para falar com eles sobre qualquer ponto que eventualmente você ache importante relacionado ao que será apresentado no treinamento.
+Temos dois zuppers focados na criação deste treinamento. Rafael Ponte (príncipe do oceano) e Yuri Matheus (o nosso jovem que de tanta tranquilidade parece o mestre ancião). Sinta-se a vontade para falar com eles sobre qualquer ponto que eventualmente você ache importante relacionado ao que será apresentado no treinamento.
 
 ## Está interessado ?
 
