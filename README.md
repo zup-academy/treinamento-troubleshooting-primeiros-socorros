@@ -71,11 +71,11 @@
 
 ## Quem está criando?
 
-Temos dois zuppers focados na criação deste treinamento. Rafael Ponte(príncipe do oceano) e Yuri Matheus(o nosso jovem que de tanta tranquilidade parece o mestre ancião). Sinta-se a vontade para falar com eles e falar sobre qualquer ponto que eventualmente você ache importante relacionado ao que será apresentado no treinamento.
+Temos dois zuppers focados na criação deste treinamento. Rafael Ponte(príncipe do oceano) e Yuri Matheus(o nosso jovem que de tanta tranquilidade parece o mestre ancião). Sinta-se a vontade para falar com eles sobre qualquer ponto que eventualmente você ache importante relacionado ao que será apresentado no treinamento.
 
 ## Está interessado ?
 
-A primeira versão deste treinamento está prevista para ser lançada no dia 06/09/2021. Ela vai poder ser consumido no modelo que chamamos de self-paced, ou seja você faz no seu tempo respeitando o seu contexto. Ele virá recheado de conteúdo teórico autoral e muitas atividades que vão realmente te desafiar. 
+A primeira versão deste treinamento está prevista para ser lançada no dia 06/09/2021. Ele vai poder ser consumido no modelo que chamamos de self-paced, ou seja você faz no seu tempo respeitando o seu contexto. Ele virá recheado de conteúdo teórico autoral e muitas atividades que vão realmente te desafiar. 
 
 Acreditamos que um treino realmente bem feito acelera demais seu desenvolvimento e te deixa cada vez mais preparado(a) para os desafios que você vai encontrar no campo de jogo. Se 
 
