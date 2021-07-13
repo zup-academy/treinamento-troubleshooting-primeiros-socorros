@@ -77,7 +77,7 @@ Temos dois zuppers focados na criação deste treinamento. Rafael Ponte(príncip
 
 A primeira versão deste treinamento está prevista para ser lançada no dia 06/09/2021. Ele vai poder ser consumido no modelo que chamamos de self-paced, ou seja você faz no seu tempo respeitando o seu contexto. Ele virá recheado de conteúdo teórico autoral e muitas atividades que vão realmente te desafiar. 
 
-Acreditamos que um treino realmente bem feito acelera demais seu desenvolvimento e te deixa cada vez mais preparado(a) para os desafios que você vai encontrar no campo de jogo. Se 
+Acreditamos que um treino realmente bem feito acelera demais seu desenvolvimento e te deixa cada vez mais preparado(a) para os desafios que você vai encontrar no campo de jogo. 
 
 Para ser notificado(a) do lançamento, pedimos que deixe seu email aqui neste [formulário](https://forms.gle/HPxoh4AJA2DdWzud8). 
 
